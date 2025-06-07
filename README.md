@@ -16,3 +16,4 @@ This repository features video clips demonstrating the "Metodo del Cuadro del Ca
 * https://youtube.com/clip/UgkxPQ7JyudeUIDV8T33qF0W_ppiKyn4t26f?si=4DaBLCDrLskiPqyj
 * placeholder
 * https://youtube.com/clip/UgkxZbwraWzdykwCkcW7nrHt_4vRnXPXnkc-?si=rxwEkFvSlh3TUeRT
+* [![Click to watch the demo](https://img.youtube.com/vi/dQw4w9WgXcQ/0.jpg)](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
