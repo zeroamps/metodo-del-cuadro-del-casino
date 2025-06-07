@@ -51,6 +51,7 @@ NOTE: If you want to watch clips in a loop, please don't close the clip panel; o
 ## Routine: Various Paseos and Displazamientos
 * https://youtube.com/clip/UgkxCyobkMWruUyLhWBa2k1zmyrqFh70QdhI?si=Hz3uAkYb0bKqeGk4
 * https://youtube.com/clip/UgkxNmt7cgE0rqrVks09Px4Uckg61FE22cGt?si=xHxBezpu11nqQKSu
+* https://youtube.com/clip/UgkxIcm1xSgCnoSBqi-qLAtCYN9I62SuAnWu?si=0QLANvWFEsm-M3AH
 * https://youtube.com/clip/UgkxYAeUuieXFiy28XfddzFh2BezrYyDhgiF?si=qRqpEkMEwTzU4kvu
 * https://youtube.com/clip/UgkxucCkvdXT8lmTDx7t15s0xCjs4qNE4Kej?si=fxalXtTOgomyHSSo
 * https://youtube.com/clip/UgkxFWGfmCGUkaKp2vbkFRm5F8UPkPQvJKOs?si=Ey31Ova8paUv6nZA
