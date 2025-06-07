@@ -46,6 +46,7 @@ NOTE: If you want to watch clips in a loop, please don't close the clip panel; o
 
 ## Routine: Setenta 
 * https://youtube.com/clip/Ugkxj7dMT-SGrhIQ9Kfx2RupZF-8VG_hlj4J?si=CNOp_ANAtakTJMQ5
+* https://youtube.com/clip/Ugkxc9_Iji0NXudXhTF8cTfLUrCq33Ko4X1O?si=Ej_kDs-SYFih2qEM !!! step by step :-)
 
 ## Routine: Various Paseos and Displazamientos
 * https://youtube.com/clip/UgkxucCkvdXT8lmTDx7t15s0xCjs4qNE4Kej?si=fxalXtTOgomyHSSo
