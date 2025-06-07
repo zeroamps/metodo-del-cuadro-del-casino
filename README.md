@@ -4,7 +4,7 @@ This repository features video clips demonstrating the "Metodo del Cuadro del Ca
 ## Routine: Son with Deli Que No 
 https://youtube.com/clip/Ugkxq2Vsfu8plfmTM862jaSsRM_wAr9zWnwb?si=hAdD-RiGQ0YO6Yj7
 
-## Routine: Spinning At The Same Place
+## Routine: Spinning At The Same Place (I don't know better name)
 https://youtube.com/clip/Ugkxb9doR19PcmJCAIfSN90AE2fFxsQGcTG_?si=YFzQDw6MrgabPBIk
 
 ## Routine: Enchufla
