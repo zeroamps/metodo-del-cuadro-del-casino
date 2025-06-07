@@ -46,6 +46,6 @@ https://youtube.com/clip/UgkxdqhPWE2E7kOhbfx8u9MYeboQ_MhlLWr4?si=r3Em6Y0psUyqtxR
 https://youtube.com/clip/Ugkxj7dMT-SGrhIQ9Kfx2RupZF-8VG_hlj4J?si=CNOp_ANAtakTJMQ5
 
 ### I haven't started practising these yet
-https://www.youtube.com/clip/UgkxJwsvmnJ6yKocstOIlleKpAqRrxty33su
-https://www.youtube.com/clip/UgkxUHXPkeKhVzPVB2pOegAY-T9vHl1nSEun
-https://www.youtube.com/clip/UgkxuZYBDgAlHy6HbHEiDSp0B3Ppyi_dMfYP
+* https://www.youtube.com/clip/UgkxJwsvmnJ6yKocstOIlleKpAqRrxty33su
+* https://www.youtube.com/clip/UgkxUHXPkeKhVzPVB2pOegAY-T9vHl1nSEun
+* https://www.youtube.com/clip/UgkxuZYBDgAlHy6HbHEiDSp0B3Ppyi_dMfYP
