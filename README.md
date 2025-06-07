@@ -1,7 +1,7 @@
 # METODO DEL CUADRO DEL CASINO
 This repository features video clips demonstrating the "Metodo del Cuadro del Casino" (MCC) technique for my dancing routines.
 
-## Routine: Son with Deli Que No 
+## Routine: Son with Deli Que No
 https://youtube.com/clip/Ugkxq2Vsfu8plfmTM862jaSsRM_wAr9zWnwb?si=hAdD-RiGQ0YO6Yj7
 
 ## Routine: Spinning At The Same Place (I don't know better name)
