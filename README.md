@@ -6,7 +6,7 @@ NOTE: If you want to watch clips in a loop, please don't close the clip panel; o
 ## Routine: Son with Deli Que No
 https://youtube.com/clip/Ugkxq2Vsfu8plfmTM862jaSsRM_wAr9zWnwb?si=hAdD-RiGQ0YO6Yj7
 
-## Routine: Spinning At The Same Place (I don't know better name)
+## Routine: I don't know a better name, so let's call it Spinning At The Same Place for now
 https://youtube.com/clip/Ugkxb9doR19PcmJCAIfSN90AE2fFxsQGcTG_?si=YFzQDw6MrgabPBIk
 
 ## Routine: Enchufla
