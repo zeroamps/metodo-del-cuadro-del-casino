@@ -22,10 +22,10 @@ https://youtube.com/clip/UgkxBUnOaRUeFSorqA_NKXgLHnadQcFK7uHe?si=I6eICsCTdI4EufT
 https://youtube.com/clip/UgkxwCT-_Hk6NanMTQFHRpDY8eMRGWZxZvCv?si=56plvaZueQ6v9DNK
 https://youtube.com/clip/Ugkx7BisNcvKueFFlD_kz0KZZWnQK6OoMqPn?si=eCcEmvCINqh2yxX5
 
-## Routine: I don't know a proper name, so let's call it for now Close Enchufla :-)
+## Routine: I don't know a proper name, so for now, let's call it Close Enchufla
 https://youtube.com/clip/UgkxKgzPYvgZi_Nkkim574bj-jkBsL2wms2B?si=1aQITDT_cPVn2puv
 
-## Routine: I don't know a proper name, so let's call for now Crazy Enchufla :-)
+## Routine: I don't know a proper name, so for now, let's call it Crazy Enchufla
 https://youtube.com/clip/Ugkx4nEVNrS2GosnajronOAMXtU5NHPKjPG1?si=-LVxC7ROo9YYjRuQ
 
 ## Routine: Paseala
