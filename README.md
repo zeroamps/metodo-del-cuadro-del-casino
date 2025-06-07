@@ -30,6 +30,7 @@ NOTE: If you want to watch clips in a loop, please don't close the clip panel; o
 
 ## Routine: Paseala
 * https://youtube.com/clip/UgkxsJDHNAkQ2OD8esGWQGZTX4C1RZz705_9?si=kbqm0uILTpEir5xs
+* https://youtube.com/clip/UgkxeTB5MOcPu6Tsu6HF30sjd4XoGf-aLSSN?si=p3ABazAk-SN1tiow
 
 ## Routine: Saloneo
 * https://youtube.com/clip/UgkxPQ7JyudeUIDV8T33qF0W_ppiKyn4t26f?si=4DaBLCDrLskiPqyj
