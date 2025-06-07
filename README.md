@@ -34,3 +34,6 @@ https://youtube.com/clip/UgkxPQ7JyudeUIDV8T33qF0W_ppiKyn4t26f?si=4DaBLCDrLskiPqy
 
 ## Routine: I don't know a proper name some people call it Presentala
 https://youtube.com/clip/UgkxZbwraWzdykwCkcW7nrHt_4vRnXPXnkc-?si=rxwEkFvSlh3TUeRT
+
+## Routine: Ola
+https://youtube.com/clip/UgkxUt-Bg_a5gCj3LcZDFrcpzH50lFl8uS4U?si=WcIW4vDsYs8dKU4I
