@@ -7,10 +7,10 @@ https://youtube.com/clip/Ugkxq2Vsfu8plfmTM862jaSsRM_wAr9zWnwb?si=hAdD-RiGQ0YO6Yj
 ## Routine: Spinning At The Same Place
 https://youtube.com/clip/Ugkxb9doR19PcmJCAIfSN90AE2fFxsQGcTG_?si=YFzQDw6MrgabPBIk
 
-## Enchufla
+## Routine: Enchufla
 https://youtube.com/clip/Ugkx1YZCWGnLSWIUZ-25SFqWkkcUa3XoX7KS?si=xGwvc-q3qMyJx0CT
 
-## Echufla Double
+## Routine: Echufla Double
 https://youtube.com/clip/UgkxnAFxgzyiAAnVpTb87uG82SGX4xrwCbCC?si=BKgJH2CfDo1ZPgFX
 
  
