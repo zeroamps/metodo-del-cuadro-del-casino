@@ -48,7 +48,7 @@ NOTE: If you want to watch clips in a loop, please don't close the clip panel; o
 * https://youtube.com/clip/Ugkxj7dMT-SGrhIQ9Kfx2RupZF-8VG_hlj4J?si=CNOp_ANAtakTJMQ5
 * https://youtube.com/clip/Ugkxc9_Iji0NXudXhTF8cTfLUrCq33Ko4X1O?si=Ej_kDs-SYFih2qEM !!! step by step :-)
 
-## Routine: Various Paseos and Displazamientos
+## Routine: Various Paseos and Displazamientos I've started working on
 * https://youtube.com/clip/UgkxCyobkMWruUyLhWBa2k1zmyrqFh70QdhI?si=Hz3uAkYb0bKqeGk4
 * https://youtube.com/clip/UgkxNmt7cgE0rqrVks09Px4Uckg61FE22cGt?si=xHxBezpu11nqQKSu
 * https://youtube.com/clip/UgkxIcm1xSgCnoSBqi-qLAtCYN9I62SuAnWu?si=0QLANvWFEsm-M3AH
