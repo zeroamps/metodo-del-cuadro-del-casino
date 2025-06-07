@@ -15,8 +15,10 @@ https://youtube.com/clip/UgkxnAFxgzyiAAnVpTb87uG82SGX4xrwCbCC?si=BKgJH2CfDo1ZPgF
 
 ## Routine: Vacila
 https://youtube.com/clip/UgkxBUnOaRUeFSorqA_NKXgLHnadQcFK7uHe?si=I6eICsCTdI4EufTo
+
+## Routine Exhibela
+https://youtube.com/clip/Ugkx7BisNcvKueFFlD_kz0KZZWnQK6OoMqPn?si=eCcEmvCINqh2yxX5
   
-* https://youtube.com/clip/Ugkx7BisNcvKueFFlD_kz0KZZWnQK6OoMqPn?si=eCcEmvCINqh2yxX5
 * placeholder
 * https://youtube.com/clip/UgkxKgzPYvgZi_Nkkim574bj-jkBsL2wms2B?si=1aQITDT_cPVn2puv
 * https://youtube.com/clip/Ugkx4nEVNrS2GosnajronOAMXtU5NHPKjPG1?si=-LVxC7ROo9YYjRuQ
