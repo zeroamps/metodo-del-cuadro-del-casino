@@ -32,5 +32,5 @@ https://youtube.com/clip/UgkxsJDHNAkQ2OD8esGWQGZTX4C1RZz705_9?si=kbqm0uILTpEir5x
 ## Routine: Saloneo
 https://youtube.com/clip/UgkxPQ7JyudeUIDV8T33qF0W_ppiKyn4t26f?si=4DaBLCDrLskiPqyj
 
-## Routine: I don't know a proper name some people call it like Presentala
+## Routine: I don't know a proper name some people call it Presentala
 https://youtube.com/clip/UgkxZbwraWzdykwCkcW7nrHt_4vRnXPXnkc-?si=rxwEkFvSlh3TUeRT
