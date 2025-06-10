@@ -8,6 +8,7 @@ NOTE: If you want to watch clips in a loop, please don't close the clip panel; o
 
 ## Routine: I don't know a better name, so let's call it Spinning At The Same Place for now
 * https://youtube.com/clip/Ugkxb9doR19PcmJCAIfSN90AE2fFxsQGcTG_?si=YFzQDw6MrgabPBIk
+* https://youtube.com/clip/UgkxREvGbE2j5vLPJwR72BEaLqejGho_nT0L?si=_evTll0JGlDYES6D
 
 ## Routine: Enchufla
 * https://youtube.com/clip/Ugkx1YZCWGnLSWIUZ-25SFqWkkcUa3XoX7KS?si=xGwvc-q3qMyJx0CT
