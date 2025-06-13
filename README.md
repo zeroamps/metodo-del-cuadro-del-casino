@@ -31,7 +31,7 @@ NOTE: If you want to watch clips in a loop, please don't close the clip panel; o
 ## Routine: I don't know a proper name, so for now, let's call it Crazy Enchufla
 * https://youtube.com/clip/Ugkx4nEVNrS2GosnajronOAMXtU5NHPKjPG1?si=-LVxC7ROo9YYjRuQ
 
-## Routine: Paseala
+## Routine: Paseala someone calls it differently so not sure yet
 * https://youtube.com/clip/UgkxsJDHNAkQ2OD8esGWQGZTX4C1RZz705_9?si=kbqm0uILTpEir5xs
 * https://youtube.com/clip/UgkxeTB5MOcPu6Tsu6HF30sjd4XoGf-aLSSN?si=p3ABazAk-SN1tiow
 
@@ -54,10 +54,10 @@ NOTE: If you want to watch clips in a loop, please don't close the clip panel; o
 ## Routine: I don't know a proper name yet
 * https://youtube.com/clip/UgkxUHXPkeKhVzPVB2pOegAY-T9vHl1nSEun
 
-## Routine: I don't know a proper name yet, maybe Cola :-)
+## Routine: I don't know a proper name yet, maybe Cola
 * https://youtube.com/clip/Ugkxc1_c1uXkGMyvpGLDWTlIuWu2SE0rINo5?si=9ziolXwRzJvccxA1
 
-## Routine: I don't know a proper name yet, maybe Rodeo :-)
+## Routine: I don't know a proper name yet, maybe Rodeo
 * https://youtube.com/clip/Ugkxsbzza3068WQaQTWVBv8QoMPBYxJk5SD9?si=bLoGSZM_ui3lW_tX
 * https://youtube.com/clip/UgkxVTsefUqeXddX_bSFXYmCzSas9-ES4dgQ?si=zvwWhy73i_XQoROZ
 * https://youtube.com/clip/UgkxD8JqkHXUCTl3vnjVbATcwCN7wNAQAbna?si=KPEuHWvQbMM_1hPS
