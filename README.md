@@ -60,6 +60,7 @@ NOTE: If you want to watch clips in a loop, please don't close the clip panel; o
 ## Routine: I don't know a proper name yet, maybe Rodeo :-)
 * https://youtube.com/clip/Ugkxsbzza3068WQaQTWVBv8QoMPBYxJk5SD9?si=bLoGSZM_ui3lW_tX
 * https://youtube.com/clip/UgkxVTsefUqeXddX_bSFXYmCzSas9-ES4dgQ?si=zvwWhy73i_XQoROZ
+* https://youtube.com/clip/UgkxD8JqkHXUCTl3vnjVbATcwCN7wNAQAbna?si=KPEuHWvQbMM_1hPS
 
 ## Routine: Montana
 * https://www.youtube.com/watch?v=WAVdPbqjD88
