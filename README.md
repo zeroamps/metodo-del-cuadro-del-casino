@@ -57,6 +57,9 @@ NOTE: If you want to watch clips in a loop, please don't close the clip panel; o
 ## Routine: I don't know a proper name yet, maybe Cola :-)
 * https://youtube.com/clip/Ugkxc1_c1uXkGMyvpGLDWTlIuWu2SE0rINo5?si=9ziolXwRzJvccxA1
 
+## Routine: I don't know a proper name yet, maybe Rodeo :-)
+* https://youtube.com/clip/Ugkxsbzza3068WQaQTWVBv8QoMPBYxJk5SD9?si=bLoGSZM_ui3lW_tX
+
 ## Routine: Montana
 * https://www.youtube.com/watch?v=WAVdPbqjD88
 
