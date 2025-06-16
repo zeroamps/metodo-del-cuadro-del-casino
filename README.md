@@ -33,6 +33,7 @@ NOTE: If you want to watch clips in a loop, please don't close the clip panel; o
 
 ## Routine: Paseala someone calls it differently so not sure yet
 * https://youtube.com/clip/UgkxsJDHNAkQ2OD8esGWQGZTX4C1RZz705_9?si=kbqm0uILTpEir5xs
+* https://youtube.com/clip/Ugkxyf_nwkBi_qI8Bt2CbsYQa6_vo5Fru5gP?si=MefpB8tutWUWqCkH
 * https://youtube.com/clip/UgkxeTB5MOcPu6Tsu6HF30sjd4XoGf-aLSSN?si=p3ABazAk-SN1tiow
 
 ## Routine: Saloneo
