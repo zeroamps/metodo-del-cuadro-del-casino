@@ -27,6 +27,7 @@ NOTE: If you want to watch clips in a loop, please don't close the clip panel; o
 
 ## Routine: I don't know a proper name, so for now, let's call it Close Enchufla
 * https://youtube.com/clip/UgkxKgzPYvgZi_Nkkim574bj-jkBsL2wms2B?si=1aQITDT_cPVn2puv
+* https://youtube.com/clip/UgkxyHUBankLNto42OSDenH2biO68pEZCWM3?si=xcVyIllVBdfDR8bL
 
 ## Routine: I don't know a proper name, so for now, let's call it Crazy Enchufla
 * https://youtube.com/clip/Ugkx4nEVNrS2GosnajronOAMXtU5NHPKjPG1?si=-LVxC7ROo9YYjRuQ
